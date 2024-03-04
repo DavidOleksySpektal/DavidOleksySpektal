@@ -1,4 +1,5 @@
-![Screenshot 2024-01-12 at 8 44 50 PM](https://github.com/DavidOleksySpektal/DavidOleksySpektal/assets/144190992/d8ddfa84-3281-4d0e-b407-6ea654945ff7)
+
+![backLogo](https://github.com/DavidOleksySpektal/DavidOleksySpektal/assets/144190992/78451621-d807-4ce4-a92c-19c4f49c2c8a)
 
 - 👋 Hi, I’m David Oleksy
 - 👀 I’m interested in making connections and growing my business.
